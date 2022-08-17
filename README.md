@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jebogz
-- 👀 I’m interested in codig
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning software developing
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me +2348058946933
